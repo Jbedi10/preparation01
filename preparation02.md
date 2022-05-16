@@ -4,7 +4,7 @@ My preferred name is : 'Jake' - and my last name is pronounced like 'BAY-DEE'
 
 Pronouns are he/him
 
-![Image](https://www.google.com/url?sa=i&url=https%3A%2F%2Fnypost.com%2F2022%2F04%2F29%2Fdodgers-part-owner-todd-boehly-in-talks-to-acquire-chelsea-fc-report%2F&psig=AOvVaw0PrTsCsba9KtQnlXs8Nuzj&ust=1652791542549000&source=images&cd=vfe&ved=0CAwQjRxqFwoTCPjp7rmG5PcCFQAAAAAdAAAAABAD
+![Image](https://www.google.com/url?sa=i&url=https%3A%2F%2Fnypost.com%2F2022%2F04%2F29%2Fdodgers-part-owner-todd-boehly-in-talks-to-acquire-chelsea-fc-report%2F&psig=AOvVaw0PrTsCsba9KtQnlXs8Nuzj&ust=1652791542549000&source=images&cd=vfe&ved=0CAwQjRxqFwoTCPjp7rmG5PcCFQAAAAAdAAAAABAD)
 Chelsea FC is my favorite football club, and this is a picture of them lifting the champions league trophy. Though i was not there, I was at my 
 buddies lake house celebrating last year!
 
